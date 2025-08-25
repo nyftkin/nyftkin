@@ -7,8 +7,8 @@
 <p align="center">  
  hell8!! call me <b>Vriska!!</b> 🐋 or <b>Banny!!1!</b>
 <br><br>any prns!!⠀⠀-⠀⠀ pt/eng 🌀 
- <br>  <img src="https://cdn.discordapp.com/emojis/1127637054281494629.webp?size=40&quality=lossless">
- <img src="https://cdn.discordapp.com/emojis/1127637174217609346.webp?size=40&quality=lossless">   
+ <br>  <img src="https://cdn.discordapp.com/emojis/1127637054281494629.webp?size=40&quality=lossless" width="10">
+ <img src="https://cdn.discordapp.com/emojis/1127637174217609346.webp?size=40&quality=lossless" width="10">   
 <br>curr8ntly very fix8ed on <b>homestuck</b> ::::3
 </p>
 
