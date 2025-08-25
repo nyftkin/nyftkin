@@ -25,11 +25,15 @@ curr8ntly editing this! ign8re it!
 
 <p align="center">
 feel free to <b>c8ddle</b> + <b>hide!!</b>
-please <br><b>don't</b> copy my skins, th8nk you!!
+<br>please <br><b>don't</b> copy my skins, th8nk you!!
 <br>check crrd <b>4 more info </b>+<b> socials!!</b> ;;;;3
 </p>
 
 
   <p align="center">
   <img src="https://dividers.crd.co/assets/images/gallery10/4dc7da57.gif?v=05d33f91">
+</p>
+
+<p align="center">
+  <img src="https://static.wikia.nocookie.net/mspaintadventures/images/8/81/Vriska_Serket.png/revision/latest/scale-to-width/360?cb=20131109202341">
 </p>
