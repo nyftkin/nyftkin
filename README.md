@@ -32,15 +32,15 @@ feel free to <b>c8ddle</b> + <b>hide!!</b>
 <br>check crrd <b>4 more info </b>+<b> socials!!</b> ;;;;3
 </p>
 
-
+  
   <p align="center">
   <img src="https://dividers.crd.co/assets/images/gallery10/4dc7da57.gif?v=05d33f91">
 </p>
 
  <p align="center"> 
-   
-   ![](https://komarev.com/ghpvc/?username=nyftkin)
-</p>
+  ![](https://komarev.com/ghpvc/?username=nyftkin)
+ </p>
+
  <p align="center"> 
     
   sign my [ata8ook](https://angelmizer.atabook.org/)!!
