@@ -10,7 +10,7 @@ curr8ntly editing this! ign8re it!
 <br><br>any prns!!⠀⠀-⠀⠀ pt/eng 🌀 
  <br>  <img src="https://cdn.discordapp.com/emojis/1127637054281494629.webp?size=40&quality=lossless">
  <img src="https://cdn.discordapp.com/emojis/1127637174217609346.webp?size=40&quality=lossless">   
-<br><br>curr8ntly very fix8ed on <b>homestuck</b> ::::3
+<br>curr8ntly very fix8ed on <b>homestuck</b> ::::3
 </p>
 
   <p align="center">
