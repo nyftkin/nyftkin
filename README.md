@@ -23,6 +23,13 @@ curr8ntly editing this! ign8re it!
       <img src="https://adriansblinkiecollection.neocities.org/e14.gif">
 </p>
 
+<p align="center">
+feel free to <b>c8ddle</b> + <b>hide!!</b>
+please <br><b>don't</b> copy my skins, th8nk you!!
+<br>check crrd <b>4 more info </b>+<b> socials!!</b> ;;;;3
+</p>
+
+
   <p align="center">
   <img src="https://dividers.crd.co/assets/images/gallery10/4dc7da57.gif?v=05d33f91">
 </p>
