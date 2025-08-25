@@ -12,5 +12,5 @@ curr8ntly editing this! ign8re it!
 </p>
 
   <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery10/9c0d9993.gif?v=05d33f91">
+  <img src="https://dividers.crd.co/assets/images/gallery10/4dc7da57.gif?v=05d33f91">
 </p>
