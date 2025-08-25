@@ -25,7 +25,7 @@ curr8ntly editing this! ign8re it!
 
 <p align="center">
 feel free to <b>c8ddle</b> + <b>hide!!</b>
-<br>please <br><b>don't</b> copy my skins, th8nk you!!
+<br>please <b>don't</b> copy my skins, th8nk you!!
 <br>check crrd <b>4 more info </b>+<b> socials!!</b> ;;;;3
 </p>
 
