@@ -8,6 +8,6 @@ curr8ntly editing this! ign8re it!
 <p align="center">  
  hell8!! call me <b>Vriska!!</b> 🐋 or <b>Banny!!1!</b>
 <br><br>any prns!!⠀⠀-⠀⠀ pt/eng 🌀 
-currently very fixated on <b>homestuck</b> ::::3
+<br><br>currently very fixated on <b>homestuck</b> ::::3
 </p>
   
