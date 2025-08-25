@@ -12,5 +12,17 @@ curr8ntly editing this! ign8re it!
 </p>
 
   <p align="center">
+  <img src="https://64.media.tumblr.com/d9a0177c4bfc4c176cc359af021ff80e/e6a335b366e9be5c-63/s100x200/e1300acf5af446c6a5cddc357dd0744b7119d402.gifv">
+      <img src="https://64.media.tumblr.com/5628b420908d42f957d27921a0603c62/20f5f5e8d318df97-68/s100x200/c0e00a128f56eed3bfb9abadc0fe3401b25eca71.gifv">
+      <img src="https://adriansblinkiecollection.neocities.org/stamps/e99.png">
+</p>
+
+  <p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/v55.gif">
+      <img src="https://64.media.tumblr.com/0dfad85f91a1e143d88435512f90b000/20f5f5e8d318df97-79/s250x400/7dadd6a26b89cc652b477abbfed2089f1e156b03.gifv">
+      <img src="https://adriansblinkiecollection.neocities.org/e14.gif">
+</p>
+
+  <p align="center">
   <img src="https://dividers.crd.co/assets/images/gallery10/4dc7da57.gif?v=05d33f91">
 </p>
