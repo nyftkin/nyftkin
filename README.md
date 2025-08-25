@@ -37,8 +37,9 @@ feel free to <b>c8ddle</b> + <b>hide!!</b>
   <img src="https://dividers.crd.co/assets/images/gallery10/4dc7da57.gif?v=05d33f91">
 </p>
 
-
- ![](https://komarev.com/ghpvc/?username=nyftkin)
+ <p align="center"> 
+   
+   ![](https://komarev.com/ghpvc/?username=nyftkin)
 </p>
  <p align="center"> 
     
