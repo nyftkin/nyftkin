@@ -29,7 +29,7 @@
 <p align="center">
 feel free to <b>c8ddle</b> + <b>hide!!</b>
 <br>please <b>don't</b> copy my skins, th8nk you!!
-<br>check crrd <b>4 more info </b>+<b> socials!!</b> ;;;;3
+<br>check strawpage <b>4 more info </b>+<b> socials!!</b> ;;;;3
 </p>
 
   
