@@ -1,48 +1,27 @@
-
-
 <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery10/1f2408b3.gif?v=05d33f91">
-</p>
-
-<p align="center">  
- hell8!! call me <b>Vriska!!</b> 🐋 or <b>Banny!!1!</b>
-<br>any prns!!⠀⠀-⠀⠀ pt/eng 🌀 
- <br>  <img src="https://cdn.discordapp.com/emojis/1127637054281494629.webp?size=40&quality=lossless" width="20">
- <img src="https://cdn.discordapp.com/emojis/1127637174217609346.webp?size=40&quality=lossless" width="20">   
-<br>curr8ntly very fix8ed on <b>homestuck</b> ::::3
-</p>
-
-  <p align="center">
-  <img src="https://adriansblinkiecollection.neocities.org/v55.gif">
-      <img src="https://64.media.tumblr.com/0dfad85f91a1e143d88435512f90b000/20f5f5e8d318df97-79/s250x400/7dadd6a26b89cc652b477abbfed2089f1e156b03.gifv">
-      <img src="https://adriansblinkiecollection.neocities.org/e14.gif">
-</p>
-
-  <p align="center">
-  <img src="https://64.media.tumblr.com/d9a0177c4bfc4c176cc359af021ff80e/e6a335b366e9be5c-63/s100x200/e1300acf5af446c6a5cddc357dd0744b7119d402.gifv">
-      <img src="https://64.media.tumblr.com/5628b420908d42f957d27921a0603c62/20f5f5e8d318df97-68/s100x200/c0e00a128f56eed3bfb9abadc0fe3401b25eca71.gifv">
-      <img src="https://adriansblinkiecollection.neocities.org/stamps/e99.png">
-</p>
-
-
-
+<img src="https://64.media.tumblr.com/51f587699811ceec1ca3f632416883a5/24a1316a9dd0c2cc-28/s1280x1920/aee7a67e4f6893e5c33fc725915707a26af2b170.pnj">
+  <img src="https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif">
 <p align="center">
-feel free to <b>c8ddle</b> + <b>hide!!</b>
-<br>please <b>don't</b> copy my skins, th8nk you!!
-<br>check strawpage <b>4 more info </b>+<b> socials!!</b> ;;;;3
+hell8!!! call me <b>banny</b> <img src="https://64.media.tumblr.com/73b0e7a5ededf4a853ff89b593acf855/e95425e74245493d-d1/s75x75_c1/157100bbdc6911c5277c8a1f45e3f621e7786389.gifv"> or by <b>the name of the character im currently playing as</b>!!
+<br> any prns + cat/catself!! :B - pt/eng <img src="https://64.media.tumblr.com/48e63740e76ced8bec0d73aca9091cf0/0267cbb62ed7e3e6-60/s75x75_c1/f145384545354c55426c3ccbfb05dcc35b453fed.gifv">
+<br>
+  <img src="https://cdn.discordapp.com/emojis/1127637054281494629.webp?size=40&quality=lossless" width="20">  <img src="https://i.postimg.cc/c4vX6Byj/catgender-5-stripes-20-px.png" width="20"> <img src="https://cdn.discordapp.com/emojis/1127637174217609346.webp?size=40&quality=lossless" width="20">
+<br>
+curr8ntly <b>very fix8ed</b> on <b>homestuck</b>! ::::3
+  <br>
+<br> <img src="https://adriansblinkiecollection.neocities.org/a14.gif"> <img src="https://64.media.tumblr.com/dcbd07971dd8ff628ccd819701087bef/fefbda9ca24e67d8-3b/s250x400/31a9e1c378f8c1f565e31370f4be0240dfd941e1.gifv"> <img src="https://adriansblinkiecollection.neocities.org/a84.gif">
+<br> <img src="https://nustuff.carrd.co/assets/images/gallery02/b2bb4c80.png?v=0a15e1db"> <img src="https://64.media.tumblr.com/983e3857531c98db51cfe69a4f07ddab/23e83896a48037ad-25/s100x200/8e6b7420c48f3099b7b11d9737ed9ab069cd65ac.gifv"> <img src="https://adriansblinkiecollection.neocities.org/stamps/i2.gif">
+<br> feel free to <b>c8ddle</b> + <b>hide</b>!!
+<br> <b>interact w/me</b>!! im <b>really shy</b> so i might not interact first XB
+<br>  please <b>don't copy</b> my skins, th8nk you!!
+<br> check strawpage 4 <b>more info</b> + <b>socials</b>!! ;;;;3
+  <br>
+<br> <img src="https://i.postimg.cc/cLCX2Fqt/aaaaa.png">
 </p>
-
-  
-  <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery10/4dc7da57.gif?v=05d33f91">
-</p>
-
-
-
- <p align="center"> 
+<p align="center"> 
     
   sign my [ata8ook](https://angelmizer.atabook.org/)!!
- <img src="https://static.wikia.nocookie.net/mspaintadventures/images/8/81/Vriska_Serket.png/revision/latest/scale-to-width/360?cb=20131109202341" width="98">
-</p>
+ <img src="https://static.wikia.nocookie.net/mspaintadventures/images/1/17/Karkat_Vantas.png/revision/latest?cb=20111216151555" width="98">
+</p
 
 ![](https://komarev.com/ghpvc/?username=nyftkin)
