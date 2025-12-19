@@ -25,4 +25,4 @@ curr8ntly <b>very fix8ed</b> on <b>homestuck</b>! ::::3
 </p
 
 ![](https://komarev.com/ghpvc/?username=nyftkin)
-![](https://komarev.com/ghpvc/?username=your-github-username&color=ff0000)
+![](https://komarev.com/ghpvc/?username=nyftkin&color=ff0000)
