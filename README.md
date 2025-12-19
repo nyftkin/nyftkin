@@ -24,5 +24,4 @@ curr8ntly <b>very fix8ed</b> on <b>homestuck</b>! ::::3
  <img src="https://static.wikia.nocookie.net/mspaintadventures/images/1/17/Karkat_Vantas.png/revision/latest?cb=20111216151555" width="98">
 </p
 
-![](https://komarev.com/ghpvc/?username=nyftkin)
 ![](https://komarev.com/ghpvc/?username=nyftkin&color=ff0000)
