@@ -7,7 +7,8 @@ call me felix
 <br> any prns - pt/eng <img src="https://64.media.tumblr.com/48e63740e76ced8bec0d73aca9091cf0/0267cbb62ed7e3e6-60/s75x75_c1/f145384545354c55426c3ccbfb05dcc35b453fed.gifv">
 <br>
 
-<br> i <3 hannibal and john lennon 
+<br> 
+i <3 hannibal and john lennon 
   <br>
 <br> <img src="https://adriansblinkiecollection.neocities.org/a14.gif"> <img src="https://64.media.tumblr.com/dcbd07971dd8ff628ccd819701087bef/fefbda9ca24e67d8-3b/s250x400/31a9e1c378f8c1f565e31370f4be0240dfd941e1.gifv"> <img src="https://adriansblinkiecollection.neocities.org/a84.gif">
 <br> <img src="https://nustuff.carrd.co/assets/images/gallery02/b2bb4c80.png?v=0a15e1db"> <img src="https://64.media.tumblr.com/983e3857531c98db51cfe69a4f07ddab/23e83896a48037ad-25/s100x200/8e6b7420c48f3099b7b11d9737ed9ab069cd65ac.gifv"> <img src="https://adriansblinkiecollection.neocities.org/stamps/i2.gif">
