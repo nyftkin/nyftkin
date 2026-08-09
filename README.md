@@ -2,7 +2,7 @@
 <img src="https://file.garden/akU7UtRQHnXu0VoG/hannibal%20for%20github%20%3A3">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif">
 <p align="center">
-call me felix or by the name of the character im cosplaying
+call me felix or by the name of the character im cosplaying <br>
   <img src="https://64.media.tumblr.com/73b0e7a5ededf4a853ff89b593acf855/e95425e74245493d-d1/s75x75_c1/157100bbdc6911c5277c8a1f45e3f621e7786389.gifv"> or by <b>the name of the character im currently playing as</b>!!
 <br> any prns + cat/catself!! :B - pt/eng <img src="https://64.media.tumblr.com/48e63740e76ced8bec0d73aca9091cf0/0267cbb62ed7e3e6-60/s75x75_c1/f145384545354c55426c3ccbfb05dcc35b453fed.gifv">
 <br>
