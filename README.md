@@ -10,12 +10,15 @@ call me felix
 <br> 
 i <img src="https://pixels.crd.co/assets/images/gallery27/62cdf941.gif?v=29416114"> hannibal lecter and john lennon 
   <br>
-<br> <img src="https://adriansblinkiecollection.neocities.org/a14.gif"> <img src="https://adriansblinkiecollection.neocities.org/a44.gif"> <img src="https://adriansblinkiecollection.neocities.org/a84.gif">
-<br> <img src="https://adriansblinkiecollection.neocities.org/stamps/d50.png"> <img src="https://64.media.tumblr.com/983e3857531c98db51cfe69a4f07ddab/23e83896a48037ad-25/s100x200/8e6b7420c48f3099b7b11d9737ed9ab069cd65ac.gifv"> <img src="https://adriansblinkiecollection.neocities.org/stamps/i2.gif"> <img src="https://adriansblinkiecollection.neocities.org/stamps/d42.gif"
+  <br>
+<img src="https://adriansblinkiecollection.neocities.org/stamps/d50.png"> <img src="https://64.media.tumblr.com/983e3857531c98db51cfe69a4f07ddab/23e83896a48037ad-25/s100x200/8e6b7420c48f3099b7b11d9737ed9ab069cd65ac.gifv"> <img src="https://adriansblinkiecollection.neocities.org/stamps/i2.gif"> <img src="https://adriansblinkiecollection.neocities.org/stamps/d42.gif"
+                                                                                                                                                                                                                                                                                                        <br> <br>
+                                                                                                                                                                                                                                                      <img src="https://adriansblinkiecollection.neocities.org/a14.gif"> <img src="https://adriansblinkiecollection.neocities.org/a44.gif"> <img src="https://adriansblinkiecollection.neocities.org/a84.gif">
 
   <br>
-  <br>
   <img src="https://i.pinimg.com/originals/e9/53/f0/e953f008957e207d720a4b1fe25d6428.gif">
+  <br>
+  <img src="https://adriansblinkiecollection.neocities.org/a3.gif"> <img src="https://adriansblinkiecollection.neocities.org/h40.gif"> <img src="https://adriansblinkiecollection.neocities.org/a37.gif">
   <br>
   <br> feel free to <b>cuddle</b> + <b>hide</b>.
 <br> <b>interact w/me</b>!! im <b>really shy</b> so i might not interact first.
