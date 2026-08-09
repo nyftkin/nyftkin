@@ -11,7 +11,7 @@ call me felix
 i <img src="https://pixels.crd.co/assets/images/gallery27/62cdf941.gif?v=29416114"> hannibal lecter and john lennon 
   <br>
 <br> <img src="https://adriansblinkiecollection.neocities.org/a14.gif"> <img src="https://adriansblinkiecollection.neocities.org/a44.gif"> <img src="https://adriansblinkiecollection.neocities.org/a84.gif">
-<br> <img src="https://nustuff.carrd.co/assets/images/gallery02/b2bb4c80.png?v=0a15e1db"> <img src="https://64.media.tumblr.com/983e3857531c98db51cfe69a4f07ddab/23e83896a48037ad-25/s100x200/8e6b7420c48f3099b7b11d9737ed9ab069cd65ac.gifv"> <img src="https://adriansblinkiecollection.neocities.org/stamps/i2.gif">
+<br> <img src="https://adriansblinkiecollection.neocities.org/stamps/d50.png"> <img src="https://64.media.tumblr.com/983e3857531c98db51cfe69a4f07ddab/23e83896a48037ad-25/s100x200/8e6b7420c48f3099b7b11d9737ed9ab069cd65ac.gifv"> <img src="https://adriansblinkiecollection.neocities.org/stamps/i2.gif"> <img src="https://adriansblinkiecollection.neocities.org/stamps/d42.gif"
 
   <br>
   <br>
@@ -22,7 +22,7 @@ i <img src="https://pixels.crd.co/assets/images/gallery27/62cdf941.gif?v=2941611
 <br>  please <b>don't copy</b> my skins, thank you!!
 <br> check strawpage 4 <b>more info</b> + <b>socials</b>.
 <br>
-<br> <img src="https://i.postimg.cc/cLCX2Fqt/aaaaa.png">
+<br> <img src="https://file.garden/akU7UtRQHnXu0VoG/cat4.png" width="400">
 </p>
 <p align="center"> 
     
